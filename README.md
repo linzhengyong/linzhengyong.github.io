@@ -1,2 +1,0 @@
-# linzhengyong.github.io
-test
